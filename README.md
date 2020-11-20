@@ -4,7 +4,7 @@ Olá! Bem vindo ao meu livro de receitas :email:
 
 - Strogonoff de frango
 
-- Pavê
+- Pavê de
 
   
   
